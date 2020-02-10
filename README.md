@@ -1,2 +1,2 @@
 # Info
- Here collect info about me
+ Here I am going to collect info about me
